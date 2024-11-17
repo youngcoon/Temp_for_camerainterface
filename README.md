@@ -1,1 +1,0 @@
-# Temp_for_camerainterface
